@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @TG-CD
+- 👀 I’m interested in video/photo editing
+- 🌱 I’m currently still in higth school
+- 📫 Discord user - TG CD#7279
